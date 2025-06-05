@@ -14,4 +14,4 @@ Skilled in building and implementing cloud-based infrastructures, with deep expe
 
 - 📧 javier.vasquez23@hotmail.com  
 - 🌐 [LinkedIn – javasquez23](https://www.linkedin.com/in/javasquez23)  
-- 📍 Cali, Colombia
+- 📍 Palmira, Colombia
